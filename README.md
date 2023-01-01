@@ -1,2 +1,2 @@
 # yuzu-costume
-snowflakes fallen like the petal of sakura.
+snowflakes fall as the fallen leaves of autumn that have covered the pathway.
