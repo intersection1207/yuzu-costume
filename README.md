@@ -1,2 +1,2 @@
 # yuzu-costume
-nothing.
+snowflakes fallen like the petal of sakura.
